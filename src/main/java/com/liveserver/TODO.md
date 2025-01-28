@@ -1,1 +1,1 @@
-Nachrichten empfangen geht noch nicht
+gerade nichts zu tun
